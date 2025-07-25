@@ -1,0 +1,1 @@
+spoi[]\\wgdfxhbjyjk[l[,m
